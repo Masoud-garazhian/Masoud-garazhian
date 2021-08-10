@@ -1,5 +1,5 @@
 - 👋 Hi, I’m @Masoud-garazhian
-- 👀 I’m interested in ... Girls , or maybe backend development, i didnt quit understood this question :D 
+- 👀 I’m interested in ... programming and crypto's
 - 🌱 I’m currently learning ... everything , crypto , ui ...
 - 💞️ I’m looking to collaborate on ... currently im good in backend dev so 
 - 📫 How to reach me ... 
