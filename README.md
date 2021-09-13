@@ -6,7 +6,7 @@
 you can find me
 in [Telegram](https://t.me/Masoud_Garazhian) ,
 in [Instagram](https://www.instagram.com/masoud.garazhian) , 
-in [linkedin](www.linkedin.com/in/masoud-garazhian) ,
+in [linkedin](https://www.linkedin.com/in/masoud-garazhian) ,
 in [whatsapp](https://wa.me/+989396925427)
 and etc 
 
