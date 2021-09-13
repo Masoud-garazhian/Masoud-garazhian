@@ -3,11 +3,11 @@
 - 🌱 I’m currently learning ... everything , crypto , ui ...
 - 💞️ I’m looking to collaborate on ... currently im good in backend dev so 
 - 📫 How to reach me ... 
-you can find me 
-in Telegram https://t.me/Masoud_Garazhian ,
-in Instagram https://www.instagram.com/masoud.garazhian , 
-in linkedin www.linkedin.com/in/masoud-garazhian ,
-in whatsapp https://wa.me/+989396925427
+you can find me
+in [Telegram](https://t.me/Masoud_Garazhian) ,
+in [Instagram](https://www.instagram.com/masoud.garazhian) , 
+in [linkedin](www.linkedin.com/in/masoud-garazhian) ,
+in [whatsapp](https://wa.me/+989396925427)
 and etc 
 
 <!---
